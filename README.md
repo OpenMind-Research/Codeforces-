@@ -1,1 +1,1 @@
-# Codeforces的石
+Hacked By r1ng0rez
